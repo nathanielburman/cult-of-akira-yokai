@@ -13,3 +13,4 @@ They do not worship the bomb yet. Their symbols for death are different. Swastik
 
 Yokai was evil. An evil little girl. She excelled in her studies and was terribly evil. For her, studies were easy to make her slaves do for her. Her mental powers were incredible at a young age. It was like thousands of souls were combining to wield her as a slave of their own. But she was the master. She was an honor student. And she became a therapist using mind control to accomplish a great task that was wiped off the face of the Earth in a single moment.
 
+[Akira is not exactly dead. Tetsuo is not exactly dead. Yokai is not dead at all. Tetsuo went mental and outside of the matrix system when he was in the bar siting on his throne. He allows his body to recompose itself into fleshatombomb. With his body out of the picture and his friends gone, he had to expose of the body somehow, you can re watch this scene and see differences if we change it. ]
