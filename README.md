@@ -3,6 +3,8 @@ Yokai was sweeter than Akira. When she exploded it killed a lot of souls. A doom
 
 Akira and Yokai were good little Japanese Nazis. They were loved and they were a part of a sssss ssssnakey super secret organization who was training them to be super NAZI soldiers. Akira killed himself. Yokai was a different story entirely... she still lives!
 
+These Japanese Nazis be lov'in on that White Nazi. These people owned slaves and they owned slaved before the war and they owned slaves after wars secretly in secret organizations that were also death cults.
+
 There was ssss a second explosion. They covered it up and said she died but had no evidence of her body.
 
 The doomsday cults are getting in number again. They are claiming territories in certain places and they are ridiculed in certain other places. The death cults are starting to outnumber the cults of the living again. Live Laugh & Love cults are dying and in search of something to buy, something on a sale. 
