@@ -1,6 +1,6 @@
 # ACT 1 ONE
 # cult-of-akira-yokai
-## DumboDisney Proudly Presents
+## DumboDisney(tm) Proudly Presents
 ## Another Picture Presented 
 ## Picturesque Extra Extra Read All About It. 
 ## Dumbo as in Jumbo the Black Elephantess(tm)!
