@@ -84,3 +84,7 @@ I front kicked this cyber bitch and she crumbled like a cake. Then I ate her sou
 This other egirl came at me and she fronted for a split second and we actually started kissing because she was beautiful and I worshiped her for a brief moment and burned in love for your soul and but she was evil. so I killed her too. Slurping up a little bit of liquid which keep coming out of this bodies ears and eyes.
 
 I cyber punched this other egirl that came at me with three other egirls. 
+
+...
+
+Florida is infested with hiding. I completely level Lee County with a flick and I backhand another egirl into oblivion.
