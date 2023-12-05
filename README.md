@@ -107,6 +107,10 @@ I travel to the mecca of homosexualit in Florida, curse be upon this place. And 
 
 ...
 
+They are all evil. Absolutlely evil. They ARE actors. When you meet the gods and you realize you have lived this life many times before, you meet the fucking assholes who keep doing it to you and it is called HELL. This is not heaven. this is no form of Heaven. This is HELL. And there is nothing any of you can do with science of string theory for example, to prove that THIS IS NOT HELL, because this is hell.
+
+...
+
 And these white homosexual Democrats still get hard ons for Japanese suffering. in Internment camps. And for droping two bombs on your heads. Which was a cover up as we all know, by the Democrats and the Nazis in Germany who wanted to setup communism Nazi style, but failed and bailed out by dropping the bombs on their best friends, the Japanese.
 
 Akira went off first. His evil had grown into discontent. Yuki went off too, but her blask did not incinerate her body somehow. The Democrats lost the Civil War against the Republicans, but won the World War with Nazi support against Japanese with Republicans. The Nazi coverup is not news to anyone older than 20. Just forget about it. So They moved the program to 'new amsterdam' in South America and into the west coast of America. Controlling the south through their classic slavery network which was reestablished during the civil rights stolen youth era.
