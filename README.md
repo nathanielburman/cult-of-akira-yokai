@@ -51,3 +51,5 @@ I backhand this bitch back into the stone age. My hand is a backhanded fist and 
 <img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/12225dream_TradingCard.jpg" width="500px"></img>
 
 One time with the faries, i made angels fly out of their who has. and they were like whoa.
+
+Whatch out there is another meomory sweep coming through. The mind and the technology is already combined. Another mind wipe comes through more often around certain parts. Longer memory people dip out immediately and they never come back.
