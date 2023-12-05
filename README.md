@@ -53,3 +53,11 @@ I backhand this bitch back into the stone age. My hand is a backhanded fist and 
 One time with the faries, i made angels fly out of their who has. and they were like whoa.
 
 Whatch out there is another meomory sweep coming through. The mind and the technology is already combined. Another mind wipe comes through more often around certain parts. Longer memory people dip out immediately and they never come back.
+
+She strikes again, in another story where she has these three egirls with her, oh wait did I already tell that one, no really theres a ton with some of these egirls she was controlling and they were bad ass. I killed one. She was sweeter than Yuki.
+
+I already killed her. You don't get it. This all happened after the events that you know about. You keep getting it all twisted. No! I am keeping it really reality virtualy focused on reality right now. When I dit max out. I left a bookmark.
+
+I front kicked this cyber bitch and she crumbled like a cake. Then I ate her soul with  an arm twist flick of the wrist to a finger tip and she just blows up in a bloody mist. Like her friends that were in her cult. Like I care.
+
+This other egirl came at me and she fronted for a split second and we actually started kissing because she was beautiful and I worshiped her for a brief moment and burned in love for your soul and but she was evil. so I killed her too. Slurping up a little bit of liquid which keep coming out of this bodies ears and eyes.
