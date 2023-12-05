@@ -20,6 +20,18 @@ There were fifty hundred bodies that died in this actualy explosion from the mov
 
 The doomsday cults are getting in number again. They are claiming territories in certain places and they are ridiculed in certain other places. The death cults are starting to outnumber the cults of the living again. Live Laugh & Love cults are dying and in search of something to buy, something on a sale. 
 
+...
+
+Doomsday cults are real cults. They are normal cults actually. This is a picture of a death cult taking over a local suburb. This is how they spread the bomb.
+
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/1225dream_TradingCard.jpg" width="500px"></img>
+
+Doomsday cults take over all cults for brief moments in time, all the time.
+
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/1226dream_TradingCard.jpg" width="500px"></img>
+
+...
+
 They do not worship the bomb yet. Their symbols for death are different. Swastika, Skull and Bones, etc. they were building a army and weapon to use to destroy the world with but they were just children.
 
 Yokai was evil. An evil little girl. She excelled in her studies and was terribly evil. For her, studies were easy to make her slaves do for her. Her mental powers were incredible at a young age. It was like thousands of souls were combining to wield her as a slave of their own. But she was the master. She was an honor student. And she became a therapist using mind control to accomplish a great task that was wiped off the face of the Earth in a single moment.
