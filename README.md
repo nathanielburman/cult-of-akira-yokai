@@ -24,6 +24,8 @@ They do not worship the bomb yet. Their symbols for death are different. Swastik
 
 Yokai was evil. An evil little girl. She excelled in her studies and was terribly evil. For her, studies were easy to make her slaves do for her. Her mental powers were incredible at a young age. It was like thousands of souls were combining to wield her as a slave of their own. But she was the master. She was an honor student. And she became a therapist using mind control to accomplish a great task that was wiped off the face of the Earth in a single moment.
 
+There were fifty hundred thousand sould killed in this blast which is represented in this image.
+
 <img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/1333dream_TradingCard.jpg" width="500px"></img>
 
 A DVIERGANT REALITY
