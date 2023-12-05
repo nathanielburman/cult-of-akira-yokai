@@ -116,3 +116,23 @@ And these white homosexual Democrats still get hard ons for Japanese suffering. 
 Akira went off first. His evil had grown into discontent. Yuki went off too, but her blask did not incinerate her body somehow. The Democrats lost the Civil War against the Republicans, but won the World War with Nazi support against Japanese with Republicans. The Nazi coverup is not news to anyone older than 20. Just forget about it. So They moved the program to 'new amsterdam' in South America and into the west coast of America. Controlling the south through their classic slavery network which was reestablished during the civil rights stolen youth era.
 
 Testsuo is still on the loose. Yuki is confirmed dead at this time. I killed her in our fight and a body was recovered that resembled her corse.
+
+Yukai's egirls still come up to me and other men I know and they call us gay as an insult! not to say we are actually GAY! And we grind them to dust. the explosions are like recoils in time.
+
+The women are pure evil in this story. They too easily look at a beautiful man and wish it into being that he WAS gay. There is a gay invisible person making her think that becasue he thinks hes so hot, but its pure evil. So the guy is never gay by the way. It is always a setup to prove who has a bigger dick. The straight guy doesnt give a fuck. The gay many who lusts for the straighst asshole is just like, jeeeze thiiiiis guy, and points his finger and shoots off an evil fuck you later spell.
+
+This system is pure evil. The circuits with the flesh was pure evil.
+
+The explosions were pure evil.
+
+Every second that goes by is evil homosexuals who control crisis 1 and crisis 2 and crisis 3, so they force a crisis on you and you are forced to pick. This is life for slaves. This is life for slaves. But around me there are nothing but demons.
+
+The digital flesh dimension is deadlier than this one.
+
+I splice four heads off clean with just their thoughts. I feel others I swipe for their necks and hearts downward. These homosexuals are evil pure evil to certain types of people who are intersectionaly different. Intersecionality comes up a bit. White homosexual Democrats who own slaves all agree that... ohhhhhhhhhhh got a little something there. These people in my dimension are pure evil. To destroy completely as much as you can is a option for cyber fleshy man bombs. With arms like elephant legs. Gravity Hate Bombs.
+
+No everyone goes out with a bang. Some go out in the dark cold night. They never come back, they reset this era. There are all the eras like spaghetti overlaping, it doesnt matter. They are all evil in this dimension. Their only design is two three fold: 1 have civil war where democrats lose again 2 send everyone to mental health facilities one by one and force them to take INSURANCE medication 3 Send you to jail for ANYTHING legal or illegal because you are not being a good slave, it doesnt matter if you work and support yourself, the cops hate you more if you work and have a life.
+
+The death cults became a nessesity becasue someone thought about death before this shit actually happened. They had no choice, and everyone else was retarded basically. Death cults provided a peace of mind only found where people understand death.
+
+Everyone becomes enamoured with death itself again. Death becomes hot and topic and cool again.
