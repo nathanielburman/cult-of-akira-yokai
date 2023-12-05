@@ -49,3 +49,5 @@ These cult meetings are dangerous. I once saw a girl go there and she became a d
 I backhand this bitch back into the stone age. My hand is a backhanded fist and it doesnt even realy strike her and she dissapears making me look like an asshole. She leaves an explosion that takes out 7 city blocks. I am okay, thank you for asking.
 
 <img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/12225dream_TradingCard.jpg" width="500px"></img>
+
+One time with the faries, i made angels fly out of their who has. and they were like whoa.
