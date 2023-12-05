@@ -88,3 +88,5 @@ I cyber punched this other egirl that came at me with three other egirls.
 ...
 
 Florida is infested with hiding. I completely level Lee County with a flick and I backhand another egirl into oblivion. White democrats hiding in closets lying about their sex.
+
+Democrats are childfuckers in the Civil War. Yokai are also the spirits of little girls and little boys that kill evil childfuckers who are all political and all liars about sex.
