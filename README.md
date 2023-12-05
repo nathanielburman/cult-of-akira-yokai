@@ -34,3 +34,18 @@ This ugly person in this image is a version of my body after full max, like spli
 <img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/12227dream_TradingCard.jpg" width="500px"></img>
 
 The design was to destroy itself. After Tetsuo maxes out he 'destroys' himself here. Technicaly, by quantum standards he still sits in his maxed out form. If you disturb him in that state you could get dead in a death cult killing on the internet you silly fuck. You thought I was just telling a story, well I am not. I said I wouldn't mess with Akira, but I am creating a divergant reality of PARODY where I will actually not tell any story about Akira or Tetsuo or any previously created creation, I will only  write for the creatures I create which are to PARODY your creations.]
+
+I am also seen in this image, the previous image was an image of my enemy. my enemy, not maxed at all, but simping for some chinese cat kittenofloooooove that I can't do this right now, just kidding, lol. This is actually me in my fully maxed form within split seconds after my max into my max form. Enlightenment is not like this at all. Illumination is different. Trinities are just made up fairy tales. and genocide is on the menu becasu their bitches are out for blood. It's round two muther fuckers. Yokai Yuki and some early egirl from 19XX's are walking along a path from school.
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/12225dream_TradingCard.jpg" width="500px"></img>
+
+She and her friends, egirls AA and AS enter the scene. Yuki looks that the girls and removes all humanity from their bodies. She devours their bodies instantly. Their souls trapped inside of a legendary seal. They all met at the cult meeting.
+
+At the cult meeting it is so swell. at the cult meetings where secrets dwell. at the cult meetings where I merry so well. at the cult wedding where i fell oh so fell. at the cult wedding where my toes were with delight... kill yourself right now at the count of seven by my count, think for one second and let a bomb go off inside of your head and then die. Now. No, okay, I just meant Now, with that out of the way. These egirls from 19XX are killed again somehow in a quantum realm and they go inside of her. Their families will haunt her. All of the children and grandparents and uncles and aunts will haunt her.
+
+These cult meetings are dangerous. I once saw a girl go there and she became a devil worshiper. She said that Love=Satan. I said welcome into the club, we are all demons ain satans army in America. I said No we are not! He pushed the egirl aside and said what, you didnt know I was here, HA! This different looking dude who was not japanese threw a bomb blast that would have taken out three blocks but the egirls souls meld in with Yuki and she absorbs the energy like a slurpy drink in her mouth and into her belly. Where she keeps things of interesting nature.
+
+# ACT 2 This Bitch Gets A Lesson in Education
+
+I backhand this bitch back into the stone age. My hand is a backhanded fist and it doesnt even realy strike her and she dissapears making me look like an asshole. She leaves an explosion that takes out 7 city blocks. I am okay, thank you for asking.
+
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/12225dream_TradingCard.jpg" width="500px"></img>
