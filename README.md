@@ -87,4 +87,4 @@ I cyber punched this other egirl that came at me with three other egirls.
 
 ...
 
-Florida is infested with hiding. I completely level Lee County with a flick and I backhand another egirl into oblivion.
+Florida is infested with hiding. I completely level Lee County with a flick and I backhand another egirl into oblivion. White democrats hiding in closets lying about their sex.
