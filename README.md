@@ -24,11 +24,11 @@ The doomsday cults are getting in number again. They are claiming territories in
 
 Doomsday cults are real cults. They are normal cults actually. This is a picture of a death cult taking over a local suburb. This is how they spread the bomb.
 
-<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/1225dream_TradingCard.jpg" width="500px"></img>
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/2225dream_TradingCard.jpg" width="500px"></img>
 
 Doomsday cults take over all cults for brief moments in time, all the time.
 
-<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/1226dream_TradingCard.jpg" width="500px"></img>
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/2225dream_TradingCard.jpg" width="500px"></img>
 
 ...
 
