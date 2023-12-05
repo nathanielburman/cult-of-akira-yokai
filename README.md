@@ -92,3 +92,23 @@ Florida is infested with hiding. I completely level Lee County with a flick and 
 Democrats are childfuckers in the Civil War. Yokai are also the spirits of little girls and little boys that kill evil childfuckers who are all political and all liars about sex.
 
 Democrats created the death cults out of thin air. They just start poping up here and there and people end up dead.
+
+Dead people just keep on piling up again, around the democrats. Nobody can find any evidence again. Except there is a tower that falls into three pieces at the same time there is an earthquake. At the same time, so-called death cults begin taking over Europe. White homosexuals are golden. A golden opportunity to make some serious gold. Sale on isle 7. Baal'Keelia is roaring.
+
+Homosexuals are golden. Clean. Prestine. They have parades in their HONOR. They have parades thrown in thier honor. They do nothing but cause the next Civil fucking War morons. The tower falls, "Christianity" snaps again, in three. Democracy completely fails, again. Many states go back to teh way they were, before "democracy" destroyed their states.
+
+The technology and the flesh merged inside of some electrical signal. and the on and off switch always with the on and off. See, I can do Relativity Too! Now your off. and 3 seconds later, now you are all on. I just did an actual Time Relativity spell on you that you will have to talk to an upper to confirm.
+
+I am created here for one purpose I am put here on earth and that is to be tortured by white homosexuals who lust for Nazi memorbelia and are homosexual and call themselves Democrats who all vote together! They stand united as my enemy.
+
+I drop kick this eboy's head off splatters into blood mist and I backhand his dorky gay friends who turn to blood dust from the aids 2.0
+
+I travel to the mecca of homosexualit in Florida, curse be upon this place. And out from their hidden closets in their hidden inner most receses of their liars mind, they sit waiting for their moment to say HATER and HYPOCRYTE! Hypocrite! Hater. Predator. Sexual Liar! Who's the kind of best liar? The homosexual liar is technically the best at something.
+
+...
+
+And these white homosexual Democrats still get hard ons for Japanese suffering. in Internment camps. And for droping two bombs on your heads. Which was a cover up as we all know, by the Democrats and the Nazis in Germany who wanted to setup communism Nazi style, but failed and bailed out by dropping the bombs on their best friends, the Japanese.
+
+Akira went off first. His evil had grown into discontent. Yuki went off too, but her blask did not incinerate her body somehow. The Democrats lost the Civil War against the Republicans, but won the World War with Nazi support against Japanese with Republicans. The Nazi coverup is not news to anyone older than 20. Just forget about it. So They moved the program to 'new amsterdam' in South America and into the west coast of America. Controlling the south through their classic slavery network which was reestablished during the civil rights stolen youth era.
+
+Testsuo is still on the loose. Yuki is confirmed dead at this time. I killed her in our fight and a body was recovered that resembled her corse.
