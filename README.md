@@ -28,7 +28,12 @@ Doomsday cults are real cults. They are normal cults actually. This is a picture
 
 Doomsday cults take over all cults for brief moments in time, all the time.
 
-<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/2225dream_TradingCard.jpg" width="500px"></img>
+
+This is a map of the area where the largest death cult hold power over. They vote.
+
+<img src="https://github.com/nathanielburman/cult-of-akira-yokai/blob/main/2226dream_TradingCard.jpg" width="500px"></img>
+
+Its called Subtopia and they worship a cyber freak named what did he just say? This guys head explodes just thinking about the name of the egirl. Its not me either.
 
 ...
 
